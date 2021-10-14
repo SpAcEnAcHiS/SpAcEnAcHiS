@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SpAcEnAcHiS
+- 👀 I’m interested in FoRtNiTe
+- 🌱 I’m currently learning divson
+- 💞️ I’m looking to collaborate on FoRtNiTe
+- 📫 How to reach me Spacenachis@gmail.com
+- Im apart of lava studios.
